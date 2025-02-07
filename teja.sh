@@ -1,1 +1,1 @@
-Hi Team. I'm ready to give presentatio.
+Hi Team. I'm ready to give presentation.
